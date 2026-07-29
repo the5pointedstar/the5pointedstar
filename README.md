@@ -20,7 +20,7 @@
 
 <p align="center">
   
-![](https://komarev.com/ghpvc/?username=the5pointedstar&color=101866&style=for-the-badge&label=VISITS&abbreviated=true)
+
 
 </p>
 
