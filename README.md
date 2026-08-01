@@ -19,10 +19,10 @@
 ![](https://64.media.tumblr.com/312e0add02fe190636c616d89a8fe816/4acc31c270e2cadc-d3/s1280x1920/4b1dfaf41953959ccbc406ef92c420399e81d01c.gifv)
 
 <p align="center">
-  
-![](https://komarev.com/ghpvc/?username=the5pointedstar&color=101866&style=for-the-badge&label=VISITS&abbreviated=true)
 
 ![](https://hit.yhype.me/github/profile?account_id=310751026)
+  
+![](https://komarev.com/ghpvc/?username=the5pointedstar&color=101866&style=for-the-badge&label=VISITS&abbreviated=true)
 
 </p>
 
