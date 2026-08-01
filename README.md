@@ -22,6 +22,8 @@
   
 ![](https://komarev.com/ghpvc/?username=the5pointedstar&color=101866&style=for-the-badge&label=VISITS&abbreviated=true)
 
+![](https://hit.yhype.me/github/profile?account_id=310751026)
+
 </p>
 
 
