@@ -1,15 +1,18 @@
 <img src="https://cutekawaiiresources.wordpress.com/wp-content/uploads/2014/08/tumblr_n0eo6kyg3u1r7y61oo1_400.gif" width="900">
 
 <p align="center">
-  $\color{#3eb9d6}{\textsf{alex - she/her - tomboy}}$
+  $\color{#3ccffa}{\textsf{alex - she/her - tomboy}}$
   <br> $\color{#1a407d}{\textsf{────・♡・────}}$
       <br> $\color{#3eb9d6}{\textsf{I'm an adult in a lesbian relationship, don't be weird}}$
+      <br>
       <br> $\color{#3eb9d6}{\textsf{not the type to interact unless I'm reached out to first. don't be shy!}}$
+      <br>
       <br> $\color{#3eb9d6}{\textsf{check out my tumblr and exe tumblr askblog (links below !)}}$
       <br>
       <br>
-      $\color{#3eb9d6}{\textsf{big fan of crystals, stars, the forest.}}$
-      <br> $\color{#3eb9d6}{\textsf{that's all for now, bye bye!}}$
+      $\color{#4592b5}{\textsf{big fan of crystals, stars, the forest.}}$
+      <br>
+      <br> $\color{#407ea8}{\textsf{that's all for now, bye bye!}}$
         <br>
       <br> $\color{#1a407d}{\textsf{────・♡・────}}$
         <br>
