@@ -12,6 +12,9 @@
       <br>
       $\color{#4592b5}{\textsf{big fan of crystals, stars, the forest.}}$
       <br>
+      <br> $\color{#4592b5}{\textsf{do not talk about sex near me. do not talk about wanting to fuck exes. PLEASE.}}$
+      <br> $\color{#4592b5}{\textsf{I should not need to elaborate further.}}$
+      <br>
       <br> $\color{#407ea8}{\textsf{that's all for now, bye bye!}}$
         <br>
       <br> $\color{#1a407d}{\textsf{────・♡・────}}$
