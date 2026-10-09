@@ -6,6 +6,8 @@
       <br> $\color{#3eb9d6}{\textsf{I'm an adult in a lesbian relationship, don't be weird}}$
       <br>
       <br> $\color{#3eb9d6}{\textsf{not the type to interact unless I'm reached out to first. don't be shy!}}$
+      <br> $\color{#407ea8}{\textsf{do not under ANY CIRCUMSTANCES talk about sex near me. do not talk about wanting to fuck exes. PLEASE.}}$
+      <br> $\color{#1a407d}{\textsf{I should not need to elaborate further.}}$
       <br>
       <br> $\color{#3eb9d6}{\textsf{check out my tumblr and exe tumblr askblog (links below !)}}$
       <br>
