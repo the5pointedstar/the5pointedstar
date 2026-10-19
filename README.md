@@ -1,4 +1,4 @@
-<img src="https://cutekawaiiresources.wordpress.com/wp-content/uploads/2014/08/tumblr_n0eo6kyg3u1r7y61oo1_400.gif" width="900" style="image-rendering: pixelated">
+<img src="https://cutekawaiiresources.wordpress.com/wp-content/uploads/2014/08/tumblr_n0eo6kyg3u1r7y61oo1_400.gif" width="900">
 
 <p align="center">
   $\color{#3ccffa}{\textsf{alex - she/her - tomboy}}$
